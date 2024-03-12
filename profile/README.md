@@ -26,9 +26,11 @@ The human body is equipped with an intricate network called the endocannabinoid 
 
 - Anxiety and Stress Relief: The calming effects of CBD can help reduce feelings of anxiety, stress, and promote a sense of relaxation and well-being. Improved Sleep: CBD has been shown to support better sleep quality, making it easier to fall asleep and stay asleep throughout the night.
 
--Anti-inflammatory Properties: CBD possesses potent anti-inflammatory properties, which can help alleviate inflammation-related conditions such as arthritis, inflammatory bowel disease, and skin disorders.
+- Anti-inflammatory Properties: CBD possesses potent anti-inflammatory properties, which can help alleviate inflammation-related conditions such as arthritis, inflammatory bowel disease, and skin disorders.
 
-- Neuroprotective Effects: Emerging research suggests that CBD may have neuroprotective properties, potentially beneficial for neurodegenerative disorders like Alzheimer's and Parkinson's disease. Active Ingredients
+- Neuroprotective Effects: Emerging research suggests that CBD may have neuroprotective properties, potentially beneficial for neurodegenerative disorders like Alzheimer's and Parkinson's disease.
+
+## Active Ingredients
 
 The key ingredient in Superior CBD Gummies is premium-grade CBD extract derived from organically grown hemp plants. Each gummy contains a precisely measured dose of CBD, ensuring consistent and reliable results. Additionally, these gummies are free from artificial colors, flavors, and preservatives, making them a safe and natural choice for overall well-being.
 
